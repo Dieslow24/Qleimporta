@@ -1,2 +1,2 @@
-# Actividades de programación 
-No sé 
+# Actividades de programación
+Tampoco sé 
